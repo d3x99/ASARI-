@@ -1,5 +1,4 @@
 # ASARI-
-List motywacyjny
 Szanowni Państwo,
 Jestem zainteresowany stanowiskiem Help Desk w Państwa firmie i chciałbym 
 przedstawić swoją kandydaturę. Moją pasją jest rozwiązywanie problemów 
